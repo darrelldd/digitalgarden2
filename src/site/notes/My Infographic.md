@@ -3,7 +3,7 @@
 ---
 
 
-[[000 Home\|< Back]]
+[[My Obsidian Home\|< Back]]
 
 *"**(**!**)**"*    *Welcome* ***My Infographic Room***
 *"**(**!**)**"*    I Like To ***Drawing*** !!  *Because*👇
