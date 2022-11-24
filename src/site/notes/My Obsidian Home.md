@@ -3,6 +3,8 @@
 ---
 
 
+# My Obsidian Home
+
 *"**(**!**)**"*    *Welcome* To ***My Obsidian*** 
 *"**(**!**)**"*    *This* Is ***My Obsidian Home***
 *"**(**!**)**"*    *Remember* This Is Not ***My Second Brain***
