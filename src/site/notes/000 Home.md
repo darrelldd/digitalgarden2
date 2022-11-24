@@ -3,5 +3,9 @@
 ---
 
 
-Home stay
-Home sweet
+*"**(**!**)**"*    *Welcome* To ***My Obsidian*** 
+*"**(**!**)**"*    *This* Is ***My Obsidian Home***
+*"**(**!**)**"*    *Remember* This Is Not ***My Second Brain***
+
+### My Room
+[[My Infographic\|My Infographic]] 👈 Touch This Link To See ***My Infographic*** 
