@@ -7,7 +7,8 @@
 
 [[Digital Garden/My Obsidian Home\|< Back]]
 
-*"**(**!**)**"*    What Is ***LGW*** ???
+*"**(**!**)**"*    Welcome To ***My LGW Live Steaming Room*** 
+*"**(**!**)**"*    By The Way What Is ***LGW*** ???
 *"**(**!**)**"*    ***LGW*** Is ***L***earn ***G***od's ***W***ord
 
 # The Church Series
