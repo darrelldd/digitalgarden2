@@ -12,5 +12,6 @@
 *"**(**!**)**"*    If You Wan't Now More Who I'am Click This Link 👉 [[Digital Garden/Who am I\|Who am I]]
 
 ### My Room
-[[Digital Garden/My Infographic\|My Infographic]] 👈 Click This Link To See ***My Infographic*** 
-[[Digital Garden/LGW Live Steaming\|LGW Live Steaming]] 👈 Click This Link To See My LGW Live Streaming
+[[Digital Garden/My Infographic\|My Infographic]] 👈 *Click This Link To See* ***My Infographic*** 
+[[Digital Garden/My LGW Live Steaming\|My LGW Live Steaming]] 👈 *Click This Link To See* ***My LGW Live Streaming***
+[[Digital Garden/My Thesaurus Verse\|My Thesaurus Verse]] 👈 *Click This Link To See* ***My Thesaurus Verse*** 
