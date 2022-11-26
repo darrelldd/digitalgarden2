@@ -14,4 +14,4 @@
 ### My Room
 [[Digital Garden/My Infographic\|My Infographic]] 👈 *Click This Link To See* ***My Infographic*** 
 [[Digital Garden/My LGW Live Steaming\|My LGW Live Steaming]] 👈 *Click This Link To See* ***My LGW Live Streaming***
-[[Digital Garden/My Thesaurus Verse\|My Thesaurus Verse]] 👈 *Click This Link To See* ***My 
+[[Digital Garden/My Thesaurus Verse\|My Thesaurus Verse]] 👈 *Click This Link To See* ***My Thesaurus Verse***
