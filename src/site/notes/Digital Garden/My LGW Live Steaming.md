@@ -36,9 +36,5 @@
 ## Follow The Bible
 [001 Saat Kekekalan](https://www.youtube.com/watch?v=fjksjbbzk6Y&t=859s)
 [002 Penciptaan Part 1](https://www.youtube.com/watch?v=kTisn13Pj1I)
-[003 Penciptaan Part 2](https://www.youtube.com/watch?v=svtvrI7PGrA)
-
-
-![[Recording 20221203094725.webm]]
-
+[003 Penciptaan Part 2 ](https://www.youtube.com/watch?v=svtvrI7PGrA)
 
