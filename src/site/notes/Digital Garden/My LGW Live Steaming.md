@@ -8,7 +8,7 @@
 [[Digital Garden/My Obsidian Home\|< Back]]
 
 *"**(**!**)**"*    Welcome To ***My LGW Live Srteaming Room*** 
-*"**(**!**)**"*    By The Way What Is ***LGW*** ???
+*"**(**!**)**"*    *By The Way* What Is ***LGW*** ???
 *"**(**!**)**"*    ***LGW*** Is ***L***earn ***G***od's ***W***ord
 
 ## The Church Series :
@@ -21,7 +21,7 @@
 
 ## Over And Over Series :
 [001 Siapa Yang Tertipu ?](https://www.youtube.com/watch?v=oATAGnZDbp0&t=51s)
-[002 Siapa Yang Menipu ?](youtube.com/watch?v=UzfZpRwVZB8&t=1134s)
+[002 Siapa Yang Menipu ?](https://www.youtube.com/watch?v=UzfZpRwVZB8&t=1134s)
 
 ## The Feast Series :
 [001 Two Ministration Part 1](https://www.youtube.com/watch?v=186Kq4lS2dw)
