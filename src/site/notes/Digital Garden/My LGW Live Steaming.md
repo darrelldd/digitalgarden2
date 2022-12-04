@@ -7,7 +7,7 @@
 
 [[Digital Garden/My Obsidian Home\|< Back]]
 
-*"**(**!**)**"*    Welcome To ***My LGW Live Srteaming Room*** 
+*"**(**!**)**"*    Welcome To ***My LGW Live Streaming Room*** 
 *"**(**!**)**"*    *By The Way* What Is ***LGW*** ???
 *"**(**!**)**"*    ***LGW*** Is ***L***earn ***G***od's ***W***ord
 
