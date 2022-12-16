@@ -36,3 +36,8 @@
 22. Rev 17:15 - Waters = Peoples = Multitudes = Nations = Tongues
 23. John 1:4 - Life = Light
 24. Isa 28:9 - Knowledge = Doctrine
+25. Isa 1:10 - Sodom = Gomorrah | Word = Law
+26. John 8:43 - Understand = Hear | Speech = Word
+27. Heb 11:6 - Faith = Substance, Evidence
+28. Heb 11:3 - Framed = Made
+29. 1 Thess 1:5 - Word = Power
