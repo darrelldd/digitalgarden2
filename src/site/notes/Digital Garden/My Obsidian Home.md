@@ -15,5 +15,5 @@
 [[Digital Garden/My Infographic\|My Infographic]] 👈 *Click This Link To See* ***My Infographic*** 
 [[Digital Garden/My LGW Live Streaming\|My LGW Live Streaming]] 👈 *Click This Link To See* ***My LGW Live Streaming***
 [[Digital Garden/My Thesaurus Verse\|My Thesaurus Verse]] 👈 *Click This Link To See* ***My Thesaurus Verse***
-[[Digital Garden/My Reason Together Recording\|My Reason Together Recording]] 👈 *Click This Link To See* **My Reason Together Recording**
+[[Digital Garden/My LGW Channel\|My LGW Channel]] 👈 *Click This Link To See* **My LGW Channel**
 
