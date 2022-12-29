@@ -10,6 +10,9 @@
 *"**(**!**)**"*    Welcome To ***My LGW Live Streaming Room*** 
 *"**(**!**)**"*    *By The Way* What Is ***LGW*** ???
 *"**(**!**)**"*    ***LGW*** Is ***L***earn ***G***od's ***W***ord
+*"**(**!**)**"*    I Make ***MY LGW Live Streaming Room*** In ***My*** "Sabbath Morefully" ***Channel***
+
+*"**(**!**)**"*    [Link](https://www.youtube.com/@thesabbathmorefully) 👈 *Click This Link To See* ***My*** "Sabbath Morefully" ***Channel***
 
 *"**(**!**)**"*  I *studied* the ***Bible*** with ***Obsidian*** 
 *"**(**!**)**"*    See this link to know more 👉 [Link](https://www.youtube.com/watch?v=m4j5hpn3anE)
