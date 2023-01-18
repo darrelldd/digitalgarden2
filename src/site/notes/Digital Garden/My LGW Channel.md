@@ -21,3 +21,5 @@
 ## Reason Together Recording
 [Wise Man and Foolish Man (Orang Bijak dan Orang Bodoh)](https://www.youtube.com/watch?v=Ca_8XgJLnGw)
 [Knowledge of God (Pengetahuan Akan Tuhan)](https://www.youtube.com/watch?v=etY3eWVNAow)
+[What Is Time ? (Apa Itu Waktu ?)](https://youtu.be/GIU3Nkn-V60)
+[Reaction Video Faith Cometh By Hearing Part 1](https://www.youtube.com/watch?v=Bagcp1wYv60)
