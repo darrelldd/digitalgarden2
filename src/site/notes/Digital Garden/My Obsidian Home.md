@@ -1,5 +1,5 @@
 ---
-{"dg-home":true,"dg-publish":true,"permalink":"/digital-garden/my-obsidian-home/","tags":"gardenEntry","dgPassFrontmatter":true}
+{"dg-home":true,"dg-publish":true,"permalink":"/digital-garden/my-obsidian-home/","tags":["gardenEntry"],"dgPassFrontmatter":true}
 ---
 
 
@@ -16,4 +16,4 @@
 [[Digital Garden/My LGW Live Streaming\|My LGW Live Streaming]] 👈 *Click This Link To See* ***My LGW Live Streaming***
 [[Digital Garden/My Thesaurus Verse\|My Thesaurus Verse]] 👈 *Click This Link To See* ***My Thesaurus Verse***
 [[Digital Garden/My LGW Channel\|My LGW Channel]] 👈 *Click This Link To See* **My LGW Channel**
-
+[[Digital Garden/My LGW Sheet\|My LGW Sheet]] 👈 *Click This Link To See* **My LGW Sheet**
