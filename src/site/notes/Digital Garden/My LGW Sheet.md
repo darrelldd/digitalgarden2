@@ -5,9 +5,9 @@
 
 # My LGW Sheet
 
-[[Digital Garden/My Obsidian Home\|< Back]]
+[[Digital Garden/Website of Reasoning\|< Back]]
 
 *"**(**!**)**"*    *Welcome* To ***My LGW Sheet***
 
 
-![[Recording 20230118132507.webm]]
+
