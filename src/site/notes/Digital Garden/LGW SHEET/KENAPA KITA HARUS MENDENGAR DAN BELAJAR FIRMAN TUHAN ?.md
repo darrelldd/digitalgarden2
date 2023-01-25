@@ -11,8 +11,8 @@
 >**17** So then **faith** cometh *by* <u>hearing</u>, and <u>hearing</u> *by* **the word of God**. 
 >**17** Maka kemudian **iman** datang *melalui* <u>pendengaran</u>, dan <u>pendengaran</u> *melalui* **firman Allah**. 
 
-*"**(**!**)**"*    **Iman** datang (punya **iman**) [Akibat] *krn* <u>mendengar</u> (belajar) **firman Allah*** [Sebab]
-*"**(**!**)**"*    Kita <u>mendengar</u> (belajar) **firman Allah*** [Sebab] *supaya* **Iman** datang (punya **iman**) [Akibat]
+*"**(**!**)**"*    **Iman** datang (punya **iman**) [Akibat] *krn* <u>mendengar</u> (belajar) **firman Allah** [Sebab]
+*"**(**!**)**"*    Kita <u>mendengar</u> (belajar) **firman Allah** [Sebab] *supaya* **Iman** datang (punya **iman**) [Akibat]
 
 # KENAPA KITA HARUS PUNYA IMAN ?
 
@@ -26,4 +26,5 @@
 
 *"**(**?**)**"*    Kenapa **Son of man** adalh **T**uhan Yesus ?
 Karna ada huruf besar **S**on of man / **L**amb 
+
 
