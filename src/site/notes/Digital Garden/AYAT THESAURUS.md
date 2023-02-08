@@ -5,7 +5,7 @@
 
 # AYAT THESAURUS
 
-[[Digital Garden/Website of Reasoning\|< KEMBALI]]
+[[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***AYAT THESAURUS*** SAYA
 *"**(**!**)**"*    *OMONG-OMONG* APA ITU ***AYAT THESAURUS***
@@ -41,3 +41,4 @@
 27. Heb 11:6 - Faith = Substance, Evidence
 28. Heb 11:3 - Framed = Made
 29. 1 Thess 1:5 - Word = Power
+30. Luk 11:20 Dan Matt 12:28 - Finger of God = Spirit of God
