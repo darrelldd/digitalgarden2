@@ -5,7 +5,7 @@
 
 # SIAPA 
 
-[[Digital Garden/Website of Reasoning\|< KEMBALI]]
+[[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    HAI... NAMA SAYA ***Darrell D.D.***
 *"**(**!**)**"*    SAYA LAHIR DI NEGARA ***INDONESIA***, DI KOTA ***SOLO***
