@@ -5,7 +5,7 @@
 
 # LGW CHANNEL
 
-[[Digital Garden/Website of Reasoning\|< KEMBALI]]
+[[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***LGW CHANNEL*** SAYA
 *"**(**!**)**"*    SAYA *MEREKAM* DI ***My LGW Channel***
@@ -24,7 +24,8 @@
 [What Is Time ? (Apa Itu Waktu ?)](https://youtu.be/GIU3Nkn-V60)
 [Reaction Video Faith Cometh By Hearing Part 1](https://www.youtube.com/watch?v=Bagcp1wYv60)
 [Reaction Faith Cometh By Hearing Video Part 2](https://www.youtube.com/watch?v=4Ax75iGpT7g)
-[The Water Above & The Water Below Air Yang Diatas & Air Yang Dibawah Part 1](https://www.youtube.com/watch?v=fqpQqR3-EQY)
-[The Water Above & The Water Below Air Yang Diatas & Air Yang Dibawah Part 2](https://www.youtube.com/watch?v=sDHrAbdzgS0)
-[Wet Part and Dry Part Bagian Yang Basah dan Bagian Yang Kering](https://www.youtube.com/watch?v=_7jJJlzeAJ4)
+[The Water Above & The Water Below _(Air Yang Diatas & Air Yang Dibawah) Part 1](https://www.youtube.com/watch?v=fqpQqR3-EQY)
+[The Water Above & The Water Below (Air Yang Diatas & Air Yang Dibawah) Part 2](https://www.youtube.com/watch?v=sDHrAbdzgS0)
+[Wet Part and Dry Part (Bagian Yang Basah dan Bagian Yang Kering)](https://www.youtube.com/watch?v=_7jJJlzeAJ4)
+[Day Government & Night Government (Pemerintah Siang & Pemerintah Malam)](https://youtu.be/oEMgkqKWhtk)
 
