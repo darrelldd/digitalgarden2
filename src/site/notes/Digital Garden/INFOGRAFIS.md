@@ -5,7 +5,7 @@
 
 # INFOGRAFIS 
 
-[[Digital Garden/Website of Reasoning\|< KEMBALI]]
+[[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***INFOGRAFIS*** SAYA
 *"**(**!**)**"*    SAYA SUKA ***MENGGAMBAR*** !!  KARENA👇
