@@ -5,7 +5,7 @@
 
 # LGW LIVE STREAMING
 
-[[Digital Garden/Website of Reasoning\|< KEMBALI]]
+[[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***LGW LIVE STREAMING*** SAYA
 *"**(**!**)**"*    *OMONG-OMONG* APA ITU ***LGW*** ???
