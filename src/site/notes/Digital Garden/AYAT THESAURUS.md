@@ -42,3 +42,4 @@
 28. Heb 11:3 - Framed = Made
 29. 1 Thess 1:5 - Word = Power
 30. Luk 11:20 Dan Matt 12:28 - Finger of God = Spirit of God
+31. Ephesians 1:18 - Understand = Enlightened
