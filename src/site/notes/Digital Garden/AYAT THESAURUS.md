@@ -12,7 +12,7 @@
 *"**(**!**)**"*    ***AYAT THESAURUS*** ITU SEPERTI ***AYAT KAMUS*** 
 *"**(**!**)**"*    *Ok*, LALU MARI KITA LIHAT ***AYAT THESAURUS*** SAYA
 
-1. [[The Bible (KJV)/Ephesians/Ephes 5#26\|Ephesians 5:26]] - Water = Word
+1. Ephesians 5:26 - Water = Word 
 2. John 6:63 - Spirit = Word = Life
 3. John 17:17 - Word = Truth
 4. Psalms 33:6 - Word = Breath
@@ -44,9 +44,10 @@
 30. Luk 11:20 Dan Matt 12:28 - Finger of God = Spirit of God
 31. Ephesians 1:18 - Understand = Enlightened
 32. John 20:22 - Breath = Holy Ghost
-33. Psalm 54:6 Sacriffice = Praise
-34. Psalm 139:7 Presence = Spirit
-35. Romans 7:14 Law = Spiritual
-36. Matt 4:10 Worship = Serve
-37. Roma 6:16 Worship = Obey
-38. 1 Thessalonians 1:5 - Gospel = Kuasa Firman = Power of Word
+33. Psalm 54:6 - Sacriffice = Praise
+34. Psalm 139:7 - Presence = Spirit
+35. Romans 7:14 - Law = Spiritual
+36. Matt 4:10 - Worship = Serve
+37. Roma 6:16 - Worship = Obey
+38. 1 Thessalonians 1:5 - Gospel = Power of Word
+
