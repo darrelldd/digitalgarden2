@@ -3,8 +3,6 @@
 ---
 
 
-# AYAT THESAURUS
-
 [[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***AYAT THESAURUS*** SAYA
