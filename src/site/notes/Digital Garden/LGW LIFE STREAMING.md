@@ -3,8 +3,6 @@
 ---
 
 
-# LGW LIFE STREAMING
-
 [[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***LGW LIVE STREAMING*** SAYA
