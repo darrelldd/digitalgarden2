@@ -3,8 +3,6 @@
 ---
 
 
-# SIAPA 
-
 [[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    HAI... NAMA SAYA ***Darrell D.D.***
