@@ -3,8 +3,6 @@
 ---
 
 
-# LGW SHEET
-
 [[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***LGW SHEET*** SAYA
