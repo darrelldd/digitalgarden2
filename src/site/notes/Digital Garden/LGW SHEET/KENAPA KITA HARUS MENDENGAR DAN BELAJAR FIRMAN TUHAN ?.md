@@ -3,9 +3,7 @@
 ---
 
 
-# KENAPA KITA HARUS MENDENGAR DAN BELAJAR FIRMAN TUHAN ?
-
-[[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
+[[Digital Garden/LGW SHEET\|< KEMBALI]]
 
 >[[The Bible (KJV)/Romans/Rom 10#17\|Rom 10:17]] 
 >**17** So then **faith** cometh *by* <u>hearing</u>, and <u>hearing</u> *by* **the word of God**. 
