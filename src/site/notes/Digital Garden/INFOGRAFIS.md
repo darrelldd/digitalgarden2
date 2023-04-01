@@ -3,8 +3,6 @@
 ---
 
 
-# INFOGRAFIS 
-
 [[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***INFOGRAFIS*** SAYA
