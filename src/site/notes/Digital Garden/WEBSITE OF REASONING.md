@@ -3,8 +3,6 @@
 ---
 
 
-# WEBSITE OF REASONING
-
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***WEBSITE SAYA*** 
 *"**(**!**)**"*    *INI* ADALAH ***INDEX*** DARI **WEBSITE** INI
 *"**(**!**)**"*    *NAMA* SAYA ***Darrell D.D.*** 
