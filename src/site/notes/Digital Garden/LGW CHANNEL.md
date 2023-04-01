@@ -3,8 +3,6 @@
 ---
 
 
-# LGW CHANNEL
-
 [[Digital Garden/WEBSITE OF REASONING\|< KEMBALI]]
 
 *"**(**!**)**"*    *SELAMAT DATANG* DI ***LGW CHANNEL*** SAYA
