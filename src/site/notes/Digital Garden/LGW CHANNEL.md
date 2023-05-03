@@ -39,5 +39,10 @@
 [015 A More Sure Word Of Prophecy](https://www.youtube.com/watch?v=QMgLbX__Qoo&list=PLjlA8B-nmqXjBQ8ctx8F74pt1sZc7oyhr&index=19)
 [016 Come short of the glory of God](https://www.youtube.com/watch?v=OapUB8bw8gw&list=PLjlA8B-nmqXjBQ8ctx8F74pt1sZc7oyhr&index=20)
 [017 Mari Kita Menciptakan Manusia](https://www.youtube.com/watch?v=wzMTK2lsRos&list=PLjlA8B-nmqXjBQ8ctx8F74pt1sZc7oyhr&index=21)
+[018 Pencipta Bisa Menciptakan](https://youtu.be/NtcSoXMDw9A)
+[019 Menciptakan Melalui Pencipta](https://youtu.be/4VyVOsDMIIs)
+[020 Ketika Injil Dicampur Iman](https://youtu.be/vdoGwP5X3ms)
+
+ ,
 
 
