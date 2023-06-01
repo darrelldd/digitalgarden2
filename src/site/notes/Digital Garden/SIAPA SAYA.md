@@ -8,4 +8,4 @@
 *"**(**!**)**"*    HAI... NAMA SAYA ***Darrell D.D.***
 *"**(**!**)**"*    SAYA LAHIR DI NEGARA ***INDONESIA***, DI KOTA ***SOLO***
 *"**(**!**)**"*    TANGGAL LAHIR SAYA ***February 23 2011***
-*"**(**!**)**"*    ANDA BISA MENGHITUNG *UMUR* SAYA, OK...
+*"**(**!**)**"*    ANDA BISA MENGHITUNG *UMUR* SAYA, OK
